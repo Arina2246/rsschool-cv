@@ -1,2 +1,2 @@
-https://arina2246.github.io/rsschool-cv/cv
 
+https://arina2246.github.io/rsschool-cv/
